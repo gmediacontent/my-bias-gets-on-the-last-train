@@ -1,1 +1,2 @@
-# my-bias-gets-on-the-last-train
+# My Bias Gets On The Last Train
+« La croiser encore ce soir dans le dernier train… si seulement j’osais lui parler ! » Lee Yeowoon, un étudiant, travaille tard et prend le dernier train chaque nuit. À chaque trajet, il aperçoit Shin Haein, une femme portant une guitare. Par un curieux hasard, ou peut-être par un coup du destin, leurs chemins ne cessent de se croiser. Ils découvrent alors qu’ils partagent un même artiste préféré : le musicien indie Long Afternoon. Peu à peu, ils se rapprochent, et c’est ainsi que leur histoire commence.
